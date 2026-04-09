@@ -1,0 +1,1 @@
+# Image_taking_for_Hu_moment
